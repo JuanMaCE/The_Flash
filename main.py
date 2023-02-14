@@ -1,5 +1,0 @@
-print('Nombre: Juan Marcos Cortés Enriquez')
-print('Facultad: Ingenieria')
-print('Carrera: Ingenieria en Informatica y Sistemas ')
-print('Semestre: 1')
-print('No Carnet: 1530623')
