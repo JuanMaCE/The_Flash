@@ -14,6 +14,8 @@ tercera temporada.:confused: :zany_face:
 
 DC Comics es una editorial de cómics estadounidense. Forma parte de DC Entertainment,1​ una de las empresas que conforman Warner Bros. Entertainment, la cual a su vez es propiedad de Warner Bros. Discovery. Fue fundada en 1934 bajo el nombre National Allied Publications, para luego tomar el nombre de DC Comics en 1937. :shushing_face:	    
 para más información [Click_Aqui](https://www.dc.com/)
+más información [Aqui](https://es.wikipedia.org/wiki/DC_Comics) 
+o si quiere más iformación [Aqui](https://www.ecccomics.com/comics/universo-dc-48.aspx)   
 
 
 ### personajes más emblemáticos.
